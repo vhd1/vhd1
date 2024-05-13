@@ -1,6 +1,6 @@
 ###
 
-Like every other computer person, my journey began with HELLO WORLD  👋
+Like every other computer person, my journey in this magic world began with HELLO WORLD  👋
 
 My motto for life - "Let's get shit done 😎" - was inspired by one of my co-workers
 
